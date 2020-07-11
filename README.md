@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi! Yo soy Kristian Serrano 👋 ⚡⚡⚡⚡ 
 
 <!--
 **kasnino/kasnino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
